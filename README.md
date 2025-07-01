@@ -24,3 +24,5 @@ PTSD related to childhood sexual abuse (CSA) is a mental health condition that c
 
 Social Anxiety (Online and Real Life):
 Social anxiety is an intense fear or discomfort in social situations due to worry about being judged, embarrassed, or negatively evaluated by others. In real life, this can lead to avoidance of face-to-face gatherings, difficulty speaking in public, or extreme nervousness around others. Online, social anxiety may present as hesitation or dread when chatting, posting, or joining group conversations, and can cause someone to avoid digital interactions just as they might avoid in-person ones. Both forms can impact daily functioning, relationships, and self-esteem.
+
+etc.. pls directly ask me if hv questions
