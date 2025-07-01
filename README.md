@@ -8,6 +8,8 @@ Things I do everyday/sometimes: Wake up, Watch TV, Draw, Text, Gym, Eat, stay up
 Relationship status: Single (kind of looking)
 Phobias & Disorders
 
+PHOBIAS/DiSORDERS
+
 Scopophobia:
 Scopophobia is the fear of being stared at or looked at by others. People with scopophobia may feel intense anxiety or discomfort in social situations where they believe they are being observed, leading to avoidance of such scenarios.
 
