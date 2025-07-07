@@ -6,7 +6,6 @@ Animes/Manga: MHA, DN, JJK, BP, DDD, TAD
 Interests/Hobbies: Drawing, talking to friends, listening to music, staying inside
 Things I do everyday/sometimes: Wake up, Watch TV, Draw, Text, Gym, Eat, stay up late playing Roblox
 Relationship status: Single (kind of looking)
-Phobias & Disorders
 
 PHOBIAS/DiSORDERS
 
